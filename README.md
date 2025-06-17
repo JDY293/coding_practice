@@ -1,1 +1,1 @@
-# Cooding Pracrice
+# Coding Pracrice
